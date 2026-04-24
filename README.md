@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/20/4d/68/204d68881cceefd072e9c8af1f763bb1.jpg" width="600">
+  <img src="https://i.pinimg.com/1200x/cd/18/87/cd1887889fd920071ffa3b3bb000bc2b.jpg" width="600">
 </p>
 I’m neither overly accommodating nor unnecessarily difficult. I operate on basic respect—especially when it comes to my personal boundaries. If you overstep, even once, don’t expect leniency. You’ll be blocked or permanently blacklisted without hesitation.
 
