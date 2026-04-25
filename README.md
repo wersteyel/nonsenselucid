@@ -1,9 +1,9 @@
 <p align="center">
   <img src="https://i.pinimg.com/1200x/cd/18/87/cd1887889fd920071ffa3b3bb000bc2b.jpg" width="600">
 </p>
-(!) VIE/CN ^^. eng is ok
-(!) 20 yo, 2006
-(!) friendly :1
+ VIE/CN ^^. eng is ok
+ 20 yo, 2006
+
 
 
 I’m neither overly accommodating nor unnecessarily difficult. I operate on basic respect—especially when it comes to my personal boundaries. If you overstep, even once, don’t expect leniency. You’ll be blocked or permanently blacklisted without hesitation.
